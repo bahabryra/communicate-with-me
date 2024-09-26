@@ -1,0 +1,1 @@
+Create an issue and then ill get a email and we will be able to talk from there or you can join this remind : https://www.remind.com/join/scwbyra123 or message 81010 and type @scwbyra123 or scwbyra123 idr
